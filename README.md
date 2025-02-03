@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi mi nombre es Natalia 👋
 
 
 **Natis06/Natis06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
